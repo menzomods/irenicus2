@@ -1,4 +1,4 @@
-No detailed lighting, foliage, or floors
+
 
 
 irenicus for Divinity: Original Sin 2 - Definitive Edition
